@@ -1,0 +1,2 @@
+# Partner
+For business purposes
